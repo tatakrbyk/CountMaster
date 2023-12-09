@@ -7,4 +7,4 @@
 
 ### GAMEPLAY LINK
 
-[Gameplay]([https://www.google.com](https://www.youtube.com/watch?v=W7qzKZcgfSs&ab_channel=TahaKARABIYIK)https://www.youtube.com/watch?v=W7qzKZcgfSs&ab_channel=TahaKARABIYIK)
+[Gameplay]([https://www.google.com](https://www.youtube.com/watch?v=W7qzKZcgfSs&ab_channel=TahaKARABIYIK)https://www.youtube.com/watch?v=W7qzKZcgfSs&ab_channel=TahaKARABIYIK).
